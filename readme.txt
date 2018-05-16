@@ -1,0 +1,1 @@
+Só o jogo, sem menus nem nada
